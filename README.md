@@ -1,0 +1,2 @@
+# 1RF21IS065
+VIJAY KUMAR GOWDA K K 1RF21IS065 AIML WORKSHOP ASSIGNMENT : https://github.com/vijaykumargowdakk
